@@ -1,0 +1,2 @@
+# asrock
+learn and dominate
